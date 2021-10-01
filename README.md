@@ -12,3 +12,6 @@ Water is the source and origin for all living on Earth, and possibly the entire 
 
 The color blue (mostly the darker shades) is my favorite color along with the black.
 ![Image](https://www.wallpaperflare.com/static/15/512/990/abstract-blue-digital-art-black-wallpaper.jpg)
+
+Something about this special liquid is calm and cooling. I'll always treasure it as something special to me.
+[Just Blue](https://www.youtube.com/watch?v=vPhg6sc1Mk4) 
